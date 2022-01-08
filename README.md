@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ethanroblox4,
+- 👀 I’m interested in Gaming,
+- 🌱 I’m currently learning Java,
+- 💞️ I’m looking to collaborate on nothing so far,
+- 📫 How to reach me Email: Ethan1896@outlook.com.
