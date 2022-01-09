@@ -2,4 +2,4 @@
 - 👀 I’m interested in Gaming,
 - 🌱 I’m currently learning Java,
 - 💞️ I’m looking to collaborate on nothing so far,
-- 📫 How to reach me Email: Ethan1896@outlook.com.
+- 📫 How to reach me Email: Ethan1896@outlook.com, Discord:Ethanroblox153#4568, Reddit:InkEthan.
